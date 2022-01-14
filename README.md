@@ -15,7 +15,7 @@
 
 ## .ᴄᴏɴɴᴇᴄᴛ ᴍᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ.
 
-###  💫 <a href="https://t.me/Srikanth_36" target="black"><img src="https://img.shields.io/badge/₳₮₮ł₮ɄĐɆ ₭ł₦₲-30302f?style=flat&logo=telegram" /></a>  💫
+###  💫 <a href="https://t.me/Srikanth_36" target="black"><img src="https://img.shields.io/badge/╚»★«╝ѕяιкαηтн𒀱-30302f?style=flat&logo=telegram" /></a>  💫
 </p>
 
 
